@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ynitish739@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1b4XhsoyeZxmlbxe925asIJgy7M-Nbvmx/view?usp=drive_link](https://drive.google.com/file/d/1b4XhsoyeZxmlbxe925asIJgy7M-Nbvmx/view?usp=drive_link)
+- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/1zrFtTwqELlQUxscR4nj-NamPKIygJXH4/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
